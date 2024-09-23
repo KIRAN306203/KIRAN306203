@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KIRAN306203
 - 👀 I’m interested in Exploring myself in every asspects 
-- 🌱 I’m currently learning ... in 3rd year of engineering 
+- 🌱 I’m currently learning ... in final year of engineering 
 - 💞️ I’m looking to collaborate on ...techinal platforms 
 - 📫 How to reach me ...@_kiran_kannadiga_76 insta , kiran S in linked in
 
